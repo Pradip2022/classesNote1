@@ -25,10 +25,32 @@ Identify the key principles of communication.
 
 
 Explain the benefits of and myths about human communication. 
-  critical and creative thinking skills, interaction skills, relationship skills, leadership skills, presentation skills, and media literacy skills
+  critical and creative thinking skills
+    awareness to valid argument
+  interaction skills
+    helps when proposing or apologizing 
+  relationship skills 
+    build connection 
+  leadership skills
+    help you communicate with small groups and organization
+  presentation skills
+    present with confort
+  media literacy skills
+    interact more effectively with media
  ![image](https://github.com/Pradip2022/classesNote1/assets/98065037/c1a286fa-3aad-42d5-81b9-add3b6135913)
 
 
 
 
 Describe the characteristics of a competent communicator.
+
+
+
+
+
+
+
+
+
+------------------------------------------------------------------------
+Critical and creative thinking skills 
